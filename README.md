@@ -1,1 +1,1 @@
-# buatbiu-io
+# buatbiu.io
